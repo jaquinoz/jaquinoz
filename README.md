@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @jaquinoz
+- 👀 I’m interested in tech and law
+- 🌱 I’m currently learning programming
+- 💞️ I’m looking to collaborate on social projects
+- 📫 you can reach me via twitter @aquinisima
